@@ -1,5 +1,4 @@
 aluno joao
-o kinect vai ´poder ler sentimentos e emoções, ondas cerebrais
 Ingredientes:
 2 bananas-prata maduras.
 100 g de manteiga em temperatura ambiente (½ xícara [chá])
